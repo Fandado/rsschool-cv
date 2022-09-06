@@ -1,0 +1,2 @@
+## Anastasiya Piatsetskaya
+In 2021, I graduated from the BSU, Faculty of Chemistry and almost immediately decided that I did not want to work as a chemist. I gave myself two years to understand in which field I want to build a career. I like to learn how different things, what I see in the browser, work. I like to animate Figma`s layouts , so I decided to try myself as a web developer. In the summer of 2022, I completed a RS pre-school with a score of 85.8%. Now I am taking the main course RS School 2022Q3
